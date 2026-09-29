@@ -1,0 +1,2 @@
+# premium-spout-001-teapot-spout-and-handle-fittin
+Stop guessing and wasting clay. Finally align your teapot spout and handle perfectly every time with the Teapot Spout and Handle Fitting Assembly Planner.  This planner eliminates the tedious trial-and-error of fitting spout and handle by providing a structured visual and measurement system. It ensures balanced proportions, proper water flow, and e
